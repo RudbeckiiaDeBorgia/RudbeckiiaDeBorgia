@@ -1,3 +1,3 @@
 ‌‌ ‌‌ ‌‌ ‌‌ ‌ ‌ ‌‌ ‌‌  ‌‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌‌‌ ‌‌ ‌‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌  ‌ ‌ ‌![](https://komarev.com/ghpvc/?username=miiyase&color=FFC5D3&plastic)
-# ![Başlıksız46_20250116002816](https://github.com/user-attachments/assets/20fe653d-2f6c-49f0-b256-6f56686e4ebd)
-# ![Başlıksız48_20250115210016](https://github.com/user-attachments/assets/6c436d7c-ad99-49fb-a38b-de2d9dd725e2)
+![Başlıksız46_20250116003232](https://github.com/user-attachments/assets/4aac16bc-3b1a-4323-a08d-fec210de38a6)
+![Başlıksız48_20250116003416](https://github.com/user-attachments/assets/d4388d69-6503-4b2f-98f8-21c176a77e13)
